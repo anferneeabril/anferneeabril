@@ -1,4 +1,5 @@
 📫 How to reach me: Linkedin @anferneeabril
+Mangekyou Sharingan
 
 
 
